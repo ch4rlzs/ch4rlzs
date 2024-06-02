@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and games
 - 🌱 I’m currently learning : python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me :email trjsno@gmail.com
+- 📫 How to reach me :discord ch_rlzs
 
 <!---
 ch4rlzs/ch4rlzs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
