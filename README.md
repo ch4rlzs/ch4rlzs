@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning : python, and a little C
 - 📫 How to reach me :discord ch_rlzs
 - ⚕️https://chizledchat.onrender.com
+- ✔Tristan Has a Lollypop
