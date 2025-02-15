@@ -2,5 +2,5 @@
 - 👀 I’m interested in learning new random things!
 - 🌱 I’m currently learning : python, and a little C
 - 📫 How to reach me :discord ch_rlzs
-- ⚕️https://chizledchat.onrender.com
+- ⚕️https://chrlzs.fun
 - ✔Tristan Has a Lollypop
